@@ -24,7 +24,7 @@ Kì ha
 
 Nó muốn mở tủ bước ra, nhưng cánh cửa khóa nó lại là ở trong tim
 
-Nó không muốn ở một mình, nó giả bộ dậy sớm sau khi thức trắng trong đêm
+Nó không muốn ở một mình, nó giả bộ dậy sớm khi đã thức trắng ở trong đêm
 
   
 
@@ -32,7 +32,7 @@ Vết thương tự nhiên sẽ lành, sẽ quên, thứ tha, yah, may đó
 
 Vết thương của nó luôn đỏ vì cây dao luôn nằm trên tay nó
 
-Nó mãi không quên được lần mẹ nó đập mạnh vào tim chính mình sâu trong lồng ngực
+Nó mãi không quên được lần mẹ nó đập mạnh vào chính con tim mình sâu trong lồng ngực
 
 Như thể bên trong đó đã không còn gì, không còn ai, ngoài những nỗi cùng cực.
 
@@ -43,12 +43,11 @@ Rồi, nó luôn đối diện với những nỗi đau do chính mình gây ra
 Nó lấy nỗi buồn làm cớ, giải cơn nghiện khốn nạn của một thây ma
 
   
-
   
 
 Như là trời xanh đã cho rất nhiều nhưng nó chừa đó mà không lấy
 
-Như mà người đã cười rất nhiều nhưng nó quay mặt đi mà không thấy
+Nhưng mà người đã cười rất nhiều nhưng nó quay mặt đi mà không thấy
 
 Lang thang một mình nó nghĩ cả cuộc đời mình chỉ là tàn tro
 
@@ -61,7 +60,6 @@ Rồi, nó luôn đối diện với những nỗi đau do chính mình gây ra
 Nó lấy nỗi buồn làm cớ, giải cơn nghiện khốn nạn của một thây ma
 
   
-
   
 
 Nó nhắm mắt quay mặt đi tránh khi lỡ có ai đó có nở một nụ cười
@@ -77,6 +75,15 @@ Nó nắm chặc lòng bàn tay để khỏi sợ hãi một bàn tay chìa
 Rồi, nó luôn đối diện với những nỗi đau do chính mình gây ra
 
 Nó lấy nỗi buồn làm cớ, giải cơn nghiện khốn nạn của một thây ma
+
+Rồi, nó luôn đối diện với những nỗi đau do chính mình gây ra
+
+Nó lấy nỗi buồn làm cớ, giải cơn nghiện khốn nạn của một thây ma
+
+
+Biển hồ tử tế yêu thương bao la vũ trụ không chỉ một lần cho
+
+Nhưng nó bó gối trốn vào bên trong cái tủ, chỉ có tàn tro
 
   
 
