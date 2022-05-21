@@ -159,7 +159,7 @@ That was the time of grade 9 (i remember have to go to internet service near my 
 
 So I have to give up my mother touge in the effort of comprehend the other language by english. Somehow, english became my 2nd mother touge that way.
 
-#### D.2. The Art of real-time interpreting
+#### D.2. The benefit of real-time interpreting
 There were boosters in my English journey. Being a semi-pro interpreters after highschool was one of them.
 
 Real-time interpreter means that when the natives say whatever they have to say, you say whatever meaning it might match in the language in check. I was be doing that both way from En to Vi and back.
