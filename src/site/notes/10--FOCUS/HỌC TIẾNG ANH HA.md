@@ -177,7 +177,7 @@ You hear me right, the whole process of thinking goes backwards. That feels like
 
 I do hope it can speak itself clearly. Say, the process of moving from touge to touge release yourself from the concrete of words and sentences. Thus, move you forward to the state in which you can articulate more sublte objectives like feelings, colors...
 
-That would open the lexicon to poetry horizon.
+That would open the lexicon to poetry horizon
 
 ### E. SUMMERING UP
 
@@ -215,10 +215,10 @@ I use paper dictionary for this job. I looked the word close down to each charac
 The best way to remember is to reconstruct, I found.
 
 ##### Life-recording moment: when we recall from what's 'almost' lost
-Come time, we can barely remember the word that is supposed to work in the situation. The vocabulary you don't remember. You want to say this, you trace back to memory and founded-dumb. This is when everything written in this Tips started to help.
+Come time, we can barely remember the word that is supposed to work in the situation. The vocabulary you don't remember. You want to say this, you trace back to memory and founded-dumb. This is when everything written in this Tips started to help. I called them the life-recording moments. This is crucial moment:
 
-- I called them the life-recording moments. This is crucial moment:
-	- Don't give up early, don't google, don't ask for help.
-	- Concentrate to relax.
-	- Recall by the feelings, connections, contexts, search the sound library, all language collectives. 
-- If you have connect enough the word with enough impression that help the word sinked to your hard wired memory. You will be able to recall it. And right after that. You will never forget that word again. It's the brain magic.
+- Don't give up early, don't google, don't ask for help.
+- Concentrate to relax.
+- Recall by the feelings, connections, contexts, search the sound library, all language collectives. 
+
+If you have connect enough the word with enough impression that help the word sinked to your hard wired memory. You will be able to recall it. And right after that. You will never forget that word again. It's the brain magic.
