@@ -188,7 +188,7 @@ So, this is what I did for the English to dip in:
 - Write what i can relate from the article i read, then.
 - Speakout - alone, without looking at the paper.
 - Last but not least, I set my schedule for an 2nd foreign language study in the centre or self learning on the internet.
-- Once in a while, I watched movies, series and tried to mimic the lines.
+- Once in a while, I watched movies, series and tried to mimic their lines.
 
 #### E.2. Last words, with time and exposure, everything sinks.
 Make sure that time is on our side not against us. Try to expose yourself actively. Remember to buildup your lexicon the right way. Build the language collectives not the collection of words and spellings.
@@ -199,7 +199,7 @@ And with time you will see, we human learn naturally without effort.
 I never search the dictionary for the word that appear for the first time. Instead, I greet the words and try to understand from the context.
 
 Only and only that I meet the word three times forth, I decided to 'learn' the word comprehensively:
-- I search it in the dictionary. 
+- I look it up the dictionary. 
 - Break them down into complementary parts (roots, prefix, suffix).
 - Make use the words on my next writing
 - Repeat the pronunciation of it fast. I mean, so fast that i twist my touge about it.
@@ -210,7 +210,7 @@ This is where I use psychologic cue to remember the word. I connect it with the 
 Remember everything that happen around myself when I learn the word; it's raining, in the coffeeshop, the song I listened.... whatever that to make the impression of the word heavy enough for it to automatically sinks down to my memory. But not the meaning from dictionary. Doing that while saying mentally: Hey you!
  
 ##### Look it up in Dictionary:
-I use paper dictionary for this job. I looked the word close down to each characters, recreat it in the mind (write it again in my mind) and search the paper dictionary without looking back at the word again.
+I used paper dictionary for this job. I looked the word close down to each characters, recreat it in the mind (write it again in my mind) and search the paper dictionary without looking back at the word again.
 
 The best way to remember is to reconstruct, I found.
 
