@@ -183,7 +183,7 @@ That would open the lexicon to poetry horizon
 
 #### E.1. My English Day
 So, this is what I did for the English to dip in:
-- Almost 24/24, listen to podcasts and musics, these would sinks down and provided me a firm foundation in which I could filter out
+- Almost 24/24, listen to podcasts and musics, these would sinks down and provided me a firm foundation in which I could filter out the context in social interactions.
 - Read one article.
 - Write what i can relate from the article i read, left handed, then.
 - Speakout - alone, without looking at the paper.
