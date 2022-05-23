@@ -185,7 +185,7 @@ That would open the lexicon to poetry horizon
 So, this is what I did for the English to dip in:
 - Almost 24/24, listen to podcasts and musics, these would sinks down and provided me a firm foundation in which I could filter out the context in social interactions.
 - Read one article.
-- Write what i can relate from the article i read, left handed, then.
+- Write what i can relate from the article i read, then.
 - Speakout - alone, without looking at the paper.
 - Last but not least, I set my schedule for an 2nd foreign language study in the centre or self learning on the internet.
 - Once in a while, I watched movies, series and tried to mimic the lines.
