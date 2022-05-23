@@ -124,7 +124,7 @@ You see, to effectively describe thoughts and ideas, we are to group them into s
 
 You get the idea. And, if you pay attentions, the concentration of meanings and concepts are not spread evenly along the text, but to concentrate quite dense in one section to the next.
 
-The Concepts are the holder of ideas, and the thoughts fill the space to effectively guide the readers going through the red line and understand what it is the writer delivers.
+The Concepts are the holder of ideas, and the thoughts fill the space to effectively guide the readers going through the red thread and understand what it is the writer delivers.
 
 Note well, not the paragraph or sentence. It's the thoughts and ideas that count.
 
@@ -137,9 +137,7 @@ Therefore, after each readings in english, what we have to do is to analyze the 
 
 We are not listen to what we hear, we listen to what we speak. It's somehow similar, we read well what we wrote alot about.
 
-You see, the tone of the text is determine not by the sound it made, but by the frequency the text is found in social interactions. For example, we speak 'strife' publicaly, and 'try my best' friendly. We sometimes switch between the two to create other 'effect' in the speech. But it's rarely we heard someone say 'endeavour'.
-
-We can only find the word 'endeavour' mostly in the formal text or when potician express there efforts to reduce taxes.
+You see, the tone of the text is determine not by the sound it made, but by the frequency the text is found in social interactions. For example, we speak 'strife' publicaly, and 'try my best' friendly. We sometimes switch between the two to create other 'effect' in the speech. But it's rarely we heard someone say 'endeavour'. We can only find the word 'endeavour' mostly in the formal text or when potician express there efforts to reduce taxes.
 
 #### C.3. The fussion of speaking and writing or Academic English.
 IELTS Speaking is the fun process, in which, you have to allow yourself to think carefully, structure you speech thoroughly before saying the first words.
